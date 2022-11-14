@@ -1,4 +1,4 @@
-### Hi there is buuzzing 👋
+### Hi, this is buuzzing 👋
 
 ----
 
